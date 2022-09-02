@@ -1,1 +1,1 @@
-# projeto-anime-mang-
+# projeto-anime-mangá
